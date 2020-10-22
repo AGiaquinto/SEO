@@ -1,0 +1,2 @@
+# SEO
+Automate Your SEO
